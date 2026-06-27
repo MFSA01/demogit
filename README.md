@@ -1,1 +1,2 @@
-hallo aku farrel dan lian yang paling lucu klo dava imut(ire** Mutlak) dfghjkgit a
+hallo aku farrel dan lian yang paling lucu klo dava imut,
+klo farel apa ya??
